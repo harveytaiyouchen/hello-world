@@ -1,2 +1,7 @@
 # hello-world
-Just another repository
+
+Hello there
+
+This is Taiyou, and I love watermelon + Pikachu!
+
+LOL, also China NO.1!!!!
