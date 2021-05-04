@@ -4,4 +4,4 @@ Hello there
 
 This is Taiyou, and I love watermelon + Pikachu!
 
-LOL, also China NO.1!!!!
+I know a little about statistics
